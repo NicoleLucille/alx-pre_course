@@ -1,1 +1,1 @@
-My first readme
+Nicole Lucille is so smart
